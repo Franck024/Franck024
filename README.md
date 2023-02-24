@@ -9,10 +9,6 @@
 
 sono [Cozzolino Francesco](https://www.linkedin.com/in/francesco-cozzolino-572b80193?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3B5dgwX8NLQN%2B4cLyT0REAhw%3D%3D)...
 
-
-
-
-  <img align="right" alt="GIF" src="https://github.com/abhisheknaiidu/abhisheknaiidu/blob/master/code.gif?raw=true" width="500" height="320" />
   
 - 💼 Hai opportunità di lavoro da offrirmi? Scrivimi, [email](mailto:cozzolino.francesco@icloud.com) :)
 - 💬 Vuoi chiedermi altro? Mandami un messaggio, [whatsapp](https://wa.me/3338923254)
